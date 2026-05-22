@@ -4,4 +4,6 @@ I'm [Viktor Reznov](https://callofduty.fandom.com/wiki/Viktor_Reznov), an indepe
 ***
 Every scientist must read this book: https://rutracker.org/forum/viewtopic.php?t=2614110
 ***
+Education: https://stepik.org/users/1278064599/profile
+***
 ![TOM GAULD for NEW SCIENTIST](priority.webp)
